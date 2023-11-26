@@ -29,12 +29,12 @@ Issue #1 (@GitHub Pages)
 
 ***
 
-### DAY I-II students handles:
+### DAY I-II Partecipants
 Name
 [Channel](https://univers.tld/name)
 
 ***
 
-### DAY III-IV agganci degli studenti:
+### DAY III-IV Partecipanti
 Nome
 [Canale](https://universo.tld/nome)
