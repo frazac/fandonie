@@ -34,7 +34,9 @@ Name
 [Channel](https://univers.tld/name)
 
 [Bilgesu](https://www.linkedin.com/in/bilgesuy%C4%B1ld%C4%B1z/)
+
 [Elena](https://instagram.com/megastupidblonde )
+
 [Shubhra](https://www.behance.net/Shubhra_Bhatnagar)
 [Adelasia](https://www.instagram.com/aisaleda/)
 [Galilea](https://instagram.com/galileaaveloz?igshid=OGQ5ZDc2ODk2ZA==)
