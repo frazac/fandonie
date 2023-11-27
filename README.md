@@ -33,24 +33,24 @@ Issue #1 (@GitHub Pages)
 Name
 [Channel](https://univers.tld/name)
 
-[Bilgesu](https://www.linkedin.com/in/bilgesuy%C4%B1ld%C4%B1z/);
-[Elena](https://instagram.com/megastupidblonde);
-[Shubhra](https://www.behance.net/Shubhra_Bhatnagar);
-[Adelasia](https://www.instagram.com/aisaleda/);
-[Galilea](https://instagram.com/galileaaveloz?igshid=OGQ5ZDc2ODk2ZA==);
-[Sonam](https://www.linkedin.com/in/sonam-gupta-313882214);
-[Vaishnavi](https://www.linkedin.com/in/vaishnavi-bhandari-315a861a5/);
-[Leon](https://www.instagram.com/leon_fdo/);
-[Danial](https://instagram.com/danial_saliba?igshid=OGQ5ZDc2ODk2ZA==);
-[Chengxi](https://instagram.com/chencyjaaa);
-[Ying](https://instagram.com/ko.ng5218?igshid=NzZlODBkYWE4Ng==);
-[Song](https://instagram.com/sooooyuanoooong);
-[Shuling](https://instagram.com/shuling.celine?igshid=OGQ5ZDc2ODk2ZA%3D%3D&utm_source=qr);
-[Noa](instgram https://www.instagram.com/noa_mouhadab);
-[A1exye](https://instagram.com/a1exye_17?igshid=OGQ5ZDc2ODk2ZA%3D%3D&utm_source=qr);
-[Lei](https://instagram.com/angelooooooo_0?igshid=NzZlODBkYWE4Ng==);
-[Yuan](https://instagram.com/chacha8868?igshid=OGQ5ZDc2ODk2ZA==);
-[Guo](https://instagram.com/_yingdian_?igshid=OGQ5ZDc2ODk2ZA%3D%3D&utm_source=qr);
+[Bilgesu](https://www.linkedin.com/in/bilgesuy%C4%B1ld%C4%B1z/)<br />
+[Elena](https://instagram.com/megastupidblonde)<br />
+[Shubhra](https://www.behance.net/Shubhra_Bhatnagar)<br />
+[Adelasia](https://www.instagram.com/aisaleda/)<br />
+[Galilea](https://instagram.com/galileaaveloz?igshid=OGQ5ZDc2ODk2ZA==)<br />
+[Sonam](https://www.linkedin.com/in/sonam-gupta-313882214)<br />
+[Vaishnavi](https://www.linkedin.com/in/vaishnavi-bhandari-315a861a5/)<br />
+[Leon](https://www.instagram.com/leon_fdo/)<br />
+[Danial](https://instagram.com/danial_saliba?igshid=OGQ5ZDc2ODk2ZA==)<br />
+[Chengxi](https://instagram.com/chencyjaaa)<br />
+[Ying](https://instagram.com/ko.ng5218?igshid=NzZlODBkYWE4Ng==)<br />
+[Song](https://instagram.com/sooooyuanoooong)<br />
+[Shuling](https://instagram.com/shuling.celine?igshid=OGQ5ZDc2ODk2ZA%3D%3D&utm_source=qr)<br />
+[Noa](instgram https://www.instagram.com/noa_mouhadab)<br />
+[A1exye](https://instagram.com/a1exye_17?igshid=OGQ5ZDc2ODk2ZA%3D%3D&utm_source=qr)<br />
+[Lei](https://instagram.com/angelooooooo_0?igshid=NzZlODBkYWE4Ng==)<br />
+[Yuan](https://instagram.com/chacha8868?igshid=OGQ5ZDc2ODk2ZA==)<br />
+[Guo](https://instagram.com/_yingdian_?igshid=OGQ5ZDc2ODk2ZA%3D%3D&utm_source=qr)<br />
 
 ***
 
